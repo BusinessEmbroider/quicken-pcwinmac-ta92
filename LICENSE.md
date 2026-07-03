@@ -1,4 +1,4 @@
-# 
+# Elite Quicken extensões para Mac OS | Automático Quicken extensões para PC Windows. Com assinaturas digitais e captura de recibos — otimizado para máximo desempenho em cada plataforma.
 
 
 
